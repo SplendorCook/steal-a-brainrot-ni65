@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with rare steal a brainrot Scripts, the #1 Script. Includes one-hit kill and speed for unbeatable
 
 
 
